@@ -1,0 +1,1 @@
+COVID-19 will go down in history as one of the worst public health pandemics in history. The sheer volume of data that is currently being collected related to COVID-19 is hard to fathom. However, it presents a unique opportunity to examine this data as the pandemic unfolds and see real-time how policies effect the direction of the outbreak.
